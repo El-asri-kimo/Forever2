@@ -1,2 +1,0 @@
-# Forever2
-kimoforever
